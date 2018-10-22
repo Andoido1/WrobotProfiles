@@ -6,7 +6,7 @@ Buy Now
 
 
 
-Zzukbot
+**Zzukbot
 wrobot
 vanillabotter
 Hacks
@@ -15,23 +15,19 @@ Gold hacks
 1-60 in 1 day hacks
 
 
+** Paid Wrobot profiles available.
+1-60 Alliance 100% AFK Randomized - has a TON of great features, Check out the post below!
+1-60 Horde 100% AFK Randomized
+
+1-70 Horde + Alliance 100% AFK
+
+Professions, gold etc.
 
 
-https://sellfy.com/bottingprofiles
+https://rocketr.net/buy/703b23a87b58
+https://rocketr.net/buy/703b23a87b58
+https://rocketr.net/buy/703b23a87b58
+https://rocketr.net/buy/703b23a87b58
+https://rocketr.net/buy/703b23a87b58
 
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
-
-https://sellfy.com/bottingprofiles
 
